@@ -1,4 +1,4 @@
-# Theo-Durant
+# Theo-Durante
 
 I am a Game Design student currently in my 7th semester at Universidade Anhembi Morumbi, with a strong academic foundation in Interactive Systems, Gameplay Development, and Creative Problem-Solving.
 
