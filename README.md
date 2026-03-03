@@ -10,4 +10,5 @@ I am currently seeking an intership opportunity where I can apply my skills, con
 
 My Links:
 Instagram: https://www.instagram.com/theodurante2005?igsh=MzJ3NWM5dDNrbGxz
+
 E-Mail: theodurante462@gmail.com
